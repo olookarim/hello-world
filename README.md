@@ -1,2 +1,1 @@
-# hello-world
-trying to connect to the world folks
+Am Oloo Karim Abdul, a 28 year old kenyan born citizen with intrests in education, IT, blog writting, website developing and coding. Am currently an agricultural and biology teacher at a local secondary school, Also doing a bit of freelancing in writing. my hobbies include: reading, writing, adventure and doing charitable work in my free time. I'll generally describe my personality as warmly, easy going and free spirited.
